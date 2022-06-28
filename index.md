@@ -1,4 +1,3 @@
-<link rel="shortcut icon" href="https://r.mobirisesite.com/218433/assets/images/favicon.png?v=1O63Mf" type="image/x-icon">
 <img src="https://r.mobirisesite.com/218433/assets/images/coin-base-pro-login.jpg?v=1O63Mf" alt="coinbase pro login">
 Còinbase Pro Lògin | Log in to Coinbase Account
 Còinbase Pro Lògin is a platform where you can store and trade cryptocurrency. Thousands of Americans use it on a daily basis for investing in their favorite coins like Bitcoin, Ethereum, Dogecoin, etc. If you still have no idea about Còinbase account setup, the guide below will take you through the Pro Còinbase sign-up process. Read each section carefully to learn how to manage your Còinbase pro assets.
